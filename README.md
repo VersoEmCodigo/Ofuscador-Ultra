@@ -21,3 +21,8 @@ https://ofuscadorultra.blogspot.com
 https://ofuscadorultra.blogspot.com
 
 https://ofuscadorultra.blogspot.com
+
+# Estamos em lançamento
+> Lançado em: 14 / FEV / 2026
+
+Obrigado!!!
